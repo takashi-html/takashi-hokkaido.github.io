@@ -1,0 +1,1 @@
+# takashi-hokkaido.github.io
